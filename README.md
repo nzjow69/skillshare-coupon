@@ -6,7 +6,7 @@ In this article, I have listed all the active SkillShare promo codes, using whic
 
 Additionally, I will also list the SkillShare discount code for existing customers, plus I will show you how you can get a 1-month free trial.
 
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcm0BWibNKFWNkbrvOQ70CJXdgEan-wks0R7qRWJTm5NlyDqt14ay04n7D2m8AEv8iHVse22aGWmkJc_SQ5cZVeHmXzyz8injLVEnlhFKLbVliWDFbq75hpI2YDd0ZORJ3bywTiIw?key=JF3ywvieOtVy0yzOW2WPKA)
+![Skillshare](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcm0BWibNKFWNkbrvOQ70CJXdgEan-wks0R7qRWJTm5NlyDqt14ay04n7D2m8AEv8iHVse22aGWmkJc_SQ5cZVeHmXzyz8injLVEnlhFKLbVliWDFbq75hpI2YDd0ZORJ3bywTiIw?key=JF3ywvieOtVy0yzOW2WPKA)
 
 Let’s dive in and grab a Skillshare promo code to save maximum on your subscription.
 
